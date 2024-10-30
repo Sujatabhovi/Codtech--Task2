@@ -7,6 +7,7 @@ Duration:October to November
 Overview of project
 
 
+![task 2](https://github.com/user-attachments/assets/ced338d9-5ae1-4d2f-ab3c-7f8fe3a580eb)
 
 
 
